@@ -19,3 +19,4 @@ It's back!
 15. Black owned != Black Backed != Majority Ownership
 16. Sipped up all my favorite liquidity. Called it a milk shakedown.
 17. Feeling lucky but left out with no pals in my tier because the only 1 with 7 type game
+18. Savage, the only essence of man. Musk couldn't produce musketeers so he cought a Tusk case
