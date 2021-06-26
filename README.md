@@ -20,3 +20,4 @@ It's back!
 16. Sipped up all my favorite liquidity. Called it a milk shakedown.
 17. Feeling lucky but left out with no pals in my tier because the only 1 with 7 type game
 18. Savage, the only essence of man. Musk couldn't produce musketeers so he cought a Tusk case
+19. I would shoot for a Toyota brand deal but it won't be the first time I'd be going places I don't belong
