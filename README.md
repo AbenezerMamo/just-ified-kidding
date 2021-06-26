@@ -22,3 +22,4 @@ It's back!
 18. Savage, the only essence of man. Musk couldn't produce musketeers so he cought a Tusk case
 19. I would shoot for a Toyota brand deal but it won't be the first time I'd be going places I don't belong
 20. Barcodes going out of style
+21. Fearing assymetric wins for people out of fear they may bring us closer to flying cars, getting rid of diseases, & increasing the global longevity and prosperity in stylish innovation. How do we get to the sci-fi version of the future? Oh, just magically appear there with all of the old fart technology and ways of thinking; without any winners along the way that build and transition us there; and certainly by retaining control and iron grip on change, its enablers, and all of those who benfit from it. Society: you are backwards; get a clue 
