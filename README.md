@@ -47,3 +47,4 @@ It's back!
 42. Stick up the fine gram. Called in the igloot
 43. Pike's peek. From my head to my heel toe. I can't even shift dawg. I like my speed in one gear. Trying to boost me a GT engine too. Just the tires i can't a Ford
 44. Soft stick and a hardly spoken. Inverted power moves. Omh that's unholy of me.
+45. This kid named Justin Der leading the youth. No joke I thought I was being trolled. Like, here I am on my stool thinking I'm doing social good enabling and kids out here serving it on a platter. Cheesy as sh*t but damn, good on you kid. I'm taking notes. Aye!
