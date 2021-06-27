@@ -31,3 +31,17 @@ It's back!
 27. Locking eyes with women and wondering why they all hate me
 28. All the rich homies who insult a $38B market cap by getting every color but the sexy red. PSA: Alpha Romero & Masserratiiiii may be more than what meets the eye. Right Hyundaiiii & yota? Tsk tsk tsk
 29. Teck Decks & model rocket engines - my childhood
+30. Goodbye the following:
+30. Punk rock, Real Madrid, TF2, Archer, weird corners of the internet, computer science, & everything and anything talent. I'll ruin it all. All of it. Pay back is a b.
+31. Rowing. Grit. Changing locations.
+32. Baseball. All of it.
+33. Drowning in Chanel 30.
+34. Everything that is managing fruit stands.
+35. If your father is a pastor, stay away from me please.
+36. M
+37. Killing Floor
+38. "Have I told you what me and my girl are doing this weekend" for everyone else
+39. Those ads that light my day; anyday
+40. Women who think it's funny to play games with me when I was a sweet young price. Now I'm an @; a *; a greeen candel; a thicc whiccc
+41. Hello: My balls just popped; can you help me replace them?
+
