@@ -28,3 +28,4 @@ It's back!
 24. Soup or salad? Nah, I'll get kryptonite greens instead - thanks. Dressing? I'm good; I can see right through
 25. Thinking I would ever "let the b.s. get past me". Everybody [TBD] Abe soon to feature you in your very own episode narrated by Kevin Hart. Just gotta make sure he outlives me bc the team needs material and every moment is precious 
 26. Thinking Hollywood would ever be allowed to make a penny on my name. In God bro, earnest.
+27. Locking eyes with women and wondering why they all hate me
