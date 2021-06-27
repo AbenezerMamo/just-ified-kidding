@@ -29,3 +29,4 @@ It's back!
 25. Thinking I would ever "let the b.s. get past me". Everybody [TBD] Abe soon to feature you in your very own episode narrated by Kevin Hart. Just gotta make sure he outlives me bc the team needs material and every moment is precious 
 26. Thinking Hollywood would ever be allowed to make a penny on my name. In God bro, earnest.
 27. Locking eyes with women and wondering why they all hate me
+28. All the rich homies who insult a $38B market cap by getting every color but the sexy red. PSA: Alpha Romero & Masserratiiiii may be more than what meets the eye. Right Hyundaiiii & yota? Tsk tsk tsk
