@@ -30,3 +30,4 @@ It's back!
 26. Thinking Hollywood would ever be allowed to make a penny on my name. In God bro, earnest.
 27. Locking eyes with women and wondering why they all hate me
 28. All the rich homies who insult a $38B market cap by getting every color but the sexy red. PSA: Alpha Romero & Masserratiiiii may be more than what meets the eye. Right Hyundaiiii & yota? Tsk tsk tsk
+29. Teck Decks & model rocket engines - my childhood
