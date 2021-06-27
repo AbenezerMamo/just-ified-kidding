@@ -27,3 +27,4 @@ It's back!
 23. What did they do? Rob him of the indepdent thinking, creative freedom, and intellectual courage so he can't champion it for the kids they so desire and reasssure will be rewarded when they grow up. In 3 lines, I just helped you calibrate your compass better than Apple's pervasive use of location and data in iOS. Disable data for Clock or I'll sue. Thanks.
 24. Soup or salad? Nah, I'll get kryptonite greens instead - thanks. Dressing? I'm good; I can see right through
 25. Thinking I would ever "let the b.s. get past me". Everybody [TBD] Abe soon to feature you in your very own episode narrated by Kevin Hart. Just gotta make sure he outlives me bc the team needs material and every moment is precious 
+26. Thinking Hollywood would ever be allowed to make a penny on my name. In God bro, earnest.
