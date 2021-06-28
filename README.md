@@ -55,3 +55,8 @@ It's back!
 50. c but Alkaline (to help her wash down candy shots)
 51. To add or not to add. The sub zero substantive issue that is the cover in and out of the money - but never f*ck around money.
 52. They say the greatest cars are all about hitting the break - not even gassed up
+53. People talking b.s. about how stimulating I am because I'm Ethiopian - rich, black, and from the mother land. We gave you coffee; don't be disrespectful.
+54. In other news, Ethiopian world star exports elevator music that is a hit your bed rock can't miss any shells on - to the left - and even - to the right!
+55. "Attitude like * you - pay me" - feeling animated; like a car tune; v8 engine block - black boxed like a carton; hitting heel toe slides and dancin like Carlton; and bleedin fuel like a SR-71 canteen. I can't even. Chasing this money like "Katniss Everdeen" with world class talent that could be J.D. certified. "Stand up on the hood if it's that reel; dawg!"
+56. * @ kids in Silicon Valley that can't even ship while my homies accepting charges and still putting out content even NPR is raveing about. "1st to the 1st". Black excellence is about to get redefined in our era bruh
+57. Stack it up; and it's the strong start to the week
