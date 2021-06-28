@@ -53,3 +53,5 @@ It's back!
 48. (continued) Optimist's crime - must have passed and just missed me - "saddest story ever told"
 49. Girl who I'm determined to upset by striking out all her favorite players. Wait, wrong sport. A for effort. 5/5 like I'm Ab
 50. c but Alkaline (to help her wash down candy shots)
+51. To add or not to add. The sub zero substantive issue that is the cover in and out of the money - but never f*ck around money.
+52. They say the greatest cars are all about hitting the break - not even gassed up
