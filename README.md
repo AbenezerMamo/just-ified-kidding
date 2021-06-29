@@ -69,3 +69,7 @@ It's back!
 64. Tatt'd up swivel; fed up with the greens from my estate; inner joint and db spiked with hashes until its cached up to ashes and the primary kief in case the job need brief
 65. Fair split. Forgot why but it added up at some point
 66. 00113636 smile but the hi didn't live down so the grievances remained distant for all to meet her in every instance; real tense - never passed. Wasn't fair but never is for @ present who can't catch on to the assymetry - weight heavy for all those who dispised, tons
+67. New day; fresh cent; now trying to copp the whole 30's; get my CD to play me DiViDends; and my quarters to be in the 1st quartile
+68. Money looking triangle and makes that sound too because I'm tired of Square & Circle running the game. It ain't friendly so I need you to sign the check on this X here. I long for that short squeeze (carry the Ez please) baby
+69. Minted
+70. I like my valuation in ex ante change
