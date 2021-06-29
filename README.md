@@ -73,3 +73,8 @@ It's back!
 68. Money looking triangle and makes that sound too because I'm tired of Square & Circle running the game. It ain't friendly so I need you to sign the check on this X here. I long for that short squeeze (carry the Ez please) baby
 69. Minted
 70. I like my valuation in ex ante change
+71. Hi sir, we've got a notice - act fast!
+72. Cup
+73. The longest and worst day falling on a month I hate. Albeit another day would be same old day unchanged like the first dime and the last dim
+74. "1 shy of a quarter a week" and $1 a month to defeat all the others
+75. Like a money teller; owned and operated but never coin operated
