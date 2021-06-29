@@ -62,3 +62,4 @@ It's back!
 57. Stack it up; and it's the strong start to the week
 58. Don't wanna find out how fire smart my skull is; rascal with fiscal fixation; risk managed but Cat9 unhinged; utilize all my Howey to pipe all my C notes with Shear will of viscocity; WO but no woes for my varsity game all alone la carte for all the clicques in my city; move that chasity for the manacity; big Walter knocks for the Mitty blimp dream that gives her limp with full service creamed de crop both lips like a hot pick; round after round; relapse for her final lap; gluten to my wake up and never test me like a make up; in the room with hands out and hands like Ayeee for her A
 59. Why can't you serve justice to bratty kids of French diplomats? Because their ple deal came with a Sil vu plais
+60. How do you ensure diplomatic immunity doesn't run past its 5 year course? Give them a 4 year vest and throw them off a cliff
