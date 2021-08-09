@@ -78,3 +78,4 @@ It's back!
 73. The longest and worst day falling on a month I hate. Albeit another day would be same old day unchanged like the first dime and the last dim
 74. "1 shy of a quarter a week" and $1 a month to defeat all the others
 75. Like a money teller; owned and operated but never coin operated
+76. What do you call two habits that stick? A habitat for two
