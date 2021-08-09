@@ -79,3 +79,4 @@ It's back!
 74. "1 shy of a quarter a week" and $1 a month to defeat all the others
 75. Like a money teller; owned and operated but never coin operated
 76. What do you call two habits that stick? A habitat for two
+77. Saying it's O & O but you still owe the investors
