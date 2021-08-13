@@ -80,3 +80,8 @@ It's back!
 75. Like a money teller; owned and operated but never coin operated
 76. What do you call two habits that stick? A habitat for two
 77. Saying it's O & O but you still owe the investors
+78. Realizing your GitHub project is just a Twitter text export. It's not * talking if there's no time stamp next to it
+79. Reaching the point in life where you look around and realize you too are stuck in the 80s
+80. A intro class in getting to the Chapo port
+81. Wondering if history teachers get shook when Civil Rights chapter begins and wonder why everyone's looks like they're ready to shiver and derails the class about their weekend
+82. To prepare for a period of meaningful work, one must first disappoint all those around them and lower all expectations before evolving themselves into someone they want to grow into. We all agree to not look back at 2020 right? Right? Like that bug with the year and stuff...let's band together and put a filter for history. "Why can't I access the 2020 files?" "Your vision out of focus fam"
