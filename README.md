@@ -85,3 +85,6 @@ It's back!
 80. A intro class in getting to the Chapo port
 81. Wondering if history teachers get shook when Civil Rights chapter begins and wonder why everyone's looks like they're ready to shiver and derails the class about their weekend
 82. To prepare for a period of meaningful work, one must first disappoint all those around them and lower all expectations before evolving themselves into someone they want to grow into. We all agree to not look back at 2020 right? Right? Like that bug with the year and stuff...let's band together and put a filter for history. "Why can't I access the 2020 files?" "Your vision out of focus fam"
+83. Spending 3 days stressing for work you scramble to get done in 30 minutes & wondering how the order of magnitude guy does it and at the same time feeling bad for all my old bosses
+84. After growing up too fast and trying to catch up on childhood, I'm still left puzzled as to why I feel like a Toms shoe thrown but too Big for me to fill
+85. Wondering if quarter life is crisis is too elitist if it implies I intend on stretching this * out to 100. Like do 3rd world countries half 1/3 crisis and if so do they say repeating 3s & if so, how many 3s?
