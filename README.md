@@ -88,3 +88,6 @@ It's back!
 83. Spending 3 days stressing for work you scramble to get done in 30 minutes & wondering how the order of magnitude guy does it and at the same time feeling bad for all my old bosses
 84. After growing up too fast and trying to catch up on childhood, I'm still left puzzled as to why I feel like a Toms shoe thrown but too Big for me to fill
 85. Wondering if quarter life is crisis is too elitist if it implies I intend on stretching this * out to 100. Like do 3rd world countries half 1/3 crisis and if so do they say repeating 3s & if so, how many 3s?
+86. If we spend so much time trying to make life and the world better, when do we actually get to experience the better life? Can y'all stop trying to make the world better so we can all just collectively manage the state machine and align our shared understanding - and collectively sigh in happiness
+87. Considering I'm the same age as the internet - if you start counting its 90s prime - I wonder what old people think of it? *kid scrolls on the tic tac & bird brain feed* "This * still writing stacks of text on the internet - old * fart" Sigh...listen here you little *
+88. Wondering why people are so obsessed with letters and numbers. It's like they just wanna be successful to own numbers. At least be like the cool kids and dominate a pigment
