@@ -91,3 +91,6 @@ It's back!
 86. If we spend so much time trying to make life and the world better, when do we actually get to experience the better life? Can y'all stop trying to make the world better so we can all just collectively manage the state machine and align our shared understanding - and collectively sigh in happiness
 87. Considering I'm the same age as the internet - if you start counting its 90s prime - I wonder what old people think of it? *kid scrolls on the tic tac & bird brain feed* "This * still writing stacks of text on the internet - old * fart" Sigh...listen here you little *
 88. Wondering why people are so obsessed with letters and numbers. It's like they just wanna be successful to own numbers. At least be like the cool kids and dominate a pigment
+89. I'm so out of focus I down sample my ADHD to be AD standard
+90. How do you know if a girl is a local Ho'st? See if she says "I One Two go see Seven'ral people"
+91. "Got any treble with the law young man?" Just a bunch of baseless accoust'ications about my gains and how I move the decib'mals because my case was a loss cause
