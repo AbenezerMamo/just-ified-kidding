@@ -97,3 +97,12 @@ It's back!
 92. If there's a Central Information Agency, how come we don't have a Central Data Agency?
 93. Why can't the Central Information Agency allow the use of a PDA? Because public display of affection isn't covered under the hush budget
 94. New model for car maker A-truck-tive, supporting All Will DD - denoting the independent drive suspension riding on the double drive shaft spinning in 6900 RPMs
+95. How do you condition fast twitch muscle fibers? Ensure it's acupuncut'ual
+96. Umm, hello?! "Very important; very pretentious"
+97. Ever wonder what happens to new technology that society just isn't ready for? It walked out the door
+98. Ever wonder what "* the El' off"'s new motivation is now that he's milked the sex joke and intellectual masterbation of EVs dry?
+99. I would like to have her as a problem or a solution. Anything excerpt the demon in a dress. If this comes back to bite me, then "hey babe, I love you". Always gets you out of trouble. How much is a HBO subscription? Need to catch up on GoT....for research
+100. I wonder if Lil Dicky is trying to beat me to a Sienfeld career run. I mean, I would start rapping but "I got energy; a whole lot of energy" bar is already taken
+101. 80s and 21s
+102. I have meaningful work that needs to be done. A career that needs to be built. An era that needs be refined. *Defeat animation splashes across the screen* sigh....Right now I'm stuck in ELO hell IRL
+103. Someone: "What do you do these days?" Me: "Attempt a takedown of Twitter by migrating the world to raw text file memes and jokes publically open source. Better content and they will come. Just ask Disney+. I hear they're doing I'gerreaat"
