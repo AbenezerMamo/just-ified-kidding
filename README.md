@@ -95,3 +95,5 @@ It's back!
 90. How do you know if a girl is a local Ho'st? See if she says "I One Two go see Seven'ral people"
 91. "Got any treble with the law young man?" Just a bunch of baseless accoust'ications about my gains and how I move the decib'mals because my case was a loss cause
 92. If there's a Central Information Agency, how come we don't have a Central Data Agency?
+93. Why can't the Central Information Agency allow the use of a PDA? Because public display of affection isn't covered under the hush budget
+94. New model for car maker A-truck-tive, supporting All Will DD - denoting the independent drive suspension riding on the double drive shaft spinning in 6900 RPMs
