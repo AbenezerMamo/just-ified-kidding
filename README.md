@@ -120,3 +120,4 @@ It's back!
 115. "So…what were YOU doing during the global criss of our generation?" Oh you know...just making sure I serve the world with my gifts and talents in case it - God forbid - gets the best of me. "Oh, you actualized your ability to move laterally and create upside like it was an egg yolk?" Yeah...something like that *commit* 
 116. Asking for a friend: if you're on the right side of history, does that mean you avoided getting left behind?
 117. Why was Facebook written in PHP? Mark was set on not using Go
+118. Hey girl, I'm in in a wreck...I'm just a deconstructed knight in shining armor. Though you'll have to adhere to wearing blue light blocking glasses. And chivalry might be dead because only the strong survive; that's the other guy the weak-end - and I'm off to a strong-start. What do you say?
