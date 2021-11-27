@@ -121,3 +121,4 @@ It's back!
 116. Asking for a friend: if you're on the right side of history, does that mean you avoided getting left behind?
 117. Why was Facebook written in PHP? Mark was set on not using Go
 118. Hey girl, I'm in in a wreck...I'm just a deconstructed knight in shining armor. Though you'll have to adhere to wearing blue light blocking glasses. And chivalry might be dead because only the strong survive; that's the other guy the weak-end - and I'm off to a strong-start. What do you say?
+119. sk8 h8
