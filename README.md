@@ -122,3 +122,6 @@ It's back!
 117. Why was Facebook written in PHP? Mark was set on not using Go
 118. Hey girl, I'm in in a wreck...I'm just a deconstructed knight in shining armor. Though you'll have to adhere to wearing blue light blocking glasses. And chivalry might be dead because only the strong survive; that's the other guy the weak-end - and I'm off to a strong-start. What do you say?
 119. sk8 h8
+120. Personalized voice mail mesaages for callers to share your status update. Paging Dr. Danger Zone
+121. Water bottles, but without the bottle. Sell fridges of frozen water in the shape of a bottle. To drink, you insert a straw that heats up the water from the inside as you drag to sip. Heats the ice water to do on-sip purification. Option for cool water exists with 2nd filter. They sell ice today all the time so why not sell hot and ice water! At the end, you're left with nothing in your hand. 0 carbon footprint. Even the heated straw can be solar or even sun telescope powered. Say goodbye to plastic waste. Say hello to custom ice sculpture product brand deals
+122. A society obsessed with ideas. I sh*t gold like this for breakfast
